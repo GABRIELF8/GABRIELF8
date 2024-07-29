@@ -10,3 +10,6 @@ Meu nome é Gabriel Yuji
 
 gabrielnakashima592@gmail.com
 
+![](https://media1.tenor.com/m/bQv81u4pK_YAAAAC/luffy-mini-luffy.gif)
+
+
